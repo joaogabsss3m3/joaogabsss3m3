@@ -1,4 +1,5 @@
 😧piri pipiri piri piradinha
-![]((https://github.com/joaogabsss3m3/joaogabsss3m3/assets/170435860/1da27749-ec04-41b3-88f3-900c5af29cc2))
+![](![image](https://github.com/joaogabsss3m3/joaogabsss3m3/assets/170435860/464b68e3-12c8-416e-9912-d06f8f556cc9)
+
 
 
